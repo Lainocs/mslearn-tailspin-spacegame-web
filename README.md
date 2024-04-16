@@ -1,3 +1,4 @@
+## Hi, just some updates here ! :3
 
 # Contributing
 
